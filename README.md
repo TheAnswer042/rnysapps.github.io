@@ -1,4 +1,4 @@
-# Privacy Policy
+Privacy Policy
 This policy explains what information we gather, and explains how that information is used, as other companies can use it, and tracking of technologies, used for collection of information.
 
 Information which we collect.
